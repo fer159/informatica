@@ -10,3 +10,9 @@ Avaliação GitHub - [https://fatecspgov-my.sharepoint.com/:w:/g/personal/fernan
 Auxílio e Aprendizado do Excel - [https://fatecspgov-my.sharepoint.com/:w:/g/personal/fernanda_andrade7_fatec_sp_gov_br/EU-EvK5QkxxLkQIWMovHpGwBMJW_WlrDuobXUB-oEyrehA?e=jLpVUx]
 
 Gastos Mensais de uma Família - [https://fatecspgov-my.sharepoint.com/:x:/g/personal/fernanda_andrade7_fatec_sp_gov_br/Ef-ActJdujFMoV5yMD-nT8IBINGOJsgiNT4HcWGxYVrYsw?e=ctD2gA]
+
+
+
+*Trabalho entregue em 06/09:*
+
+Anexo "Fernanda da Silva de Andrade"
