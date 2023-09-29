@@ -1,4 +1,4 @@
-# Trabalhos de Informática Aplicada a Logística - 1° semestre
+# Trabalhos de Informática Aplicada à Logística - 1° semestre
 Neste repositório estão todos os trabalhos de informática realizados por mim no primeiro semestre do curso de Logística da Fatec.
 
 "Sobre mim" - [https://www.canva.com/design/DAFrRgBHieY/laX_l0A6D9s8EIVbmcIoLw/edit]
